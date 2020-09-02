@@ -1,1 +1,0 @@
-# gaudelbinod.github.io
